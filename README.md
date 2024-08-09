@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on Cool projects
 - 📫 How to reach me Dm Me At pawwell124 On Discord Or pawwellinquiries@gmail.com
 - 😄 Pronouns: he/pawwell/him
-- ⚡ Fun fact: I Am A Small youtuber and uploading shorts at (https://youtube.com/@pawwell236) Make Sure To Subscribe!
+- ⚡ Fun fact: I Am A Small youtuber and uploading shorts at (https://www.youtube.com/@Gamer_Pawwell) Make Sure To Subscribe!

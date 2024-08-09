@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Pawwell1, A GD ML500 icon, and i love to edit videos and make small little programs
+- 👀 I’m interested in Video editing and coding
+- 🌱 I’m currently learning python, and javascript
+- 💞️ I’m looking to collaborate on Cool projects
+- 📫 How to reach me Dm Me At pawwell124 On Discord Or pawwellinquiries@gmail.com
+- 😄 Pronouns: he/pawwell/him
+- ⚡ Fun fact: I Am A Small youtuber and uploading shorts at (https://youtube.com/@pawwell236) Make Sure To Subscribe!
